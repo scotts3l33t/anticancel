@@ -1,2 +1,2 @@
 # anticancel
-Crowd sourcing legislation that will help end mobbing.
+Crowd sourcing legislation that will help end cancel culture.
